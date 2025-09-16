@@ -7,7 +7,8 @@
 # jhenyrose
 ## jheny@gmail.com
 # ely
-##ely@gail.com
+## ely@gail.com
 
 # stephanie
 ## Stephanie@gmail.com
+
